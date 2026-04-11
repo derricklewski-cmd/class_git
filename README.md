@@ -4,4 +4,9 @@
 - I asked the IT guy, "How do you make a Motherboard?" He said, "I tell her about my job."
 - Why dont' scientists trust atoms? Because they make up everything.
 - What do you call a cow with no legs? Ground beef.
+- What's the most expensive air you can buy? Millionaire
+- I once got fired from a keyboard factory they said I wasn’t putting in enough shifts.
+- Where do polar bears keeo their money? In a snowbank
+- A snake walked into a bar. The bartender said, How did you do that?
 - What do you call a bear with no teeth? A gummy bear!
+- Where do pirates get their hooks? Secondhand stores!
